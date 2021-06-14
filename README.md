@@ -7,5 +7,5 @@ The purpose of this token is to distribute to those enlightened enough to build 
 
 If the project gains traction, I expect to build in $CTE staking and providing various incentives for capital raising and funding of various Club Tropical Excellent projects globally.
 
-If @bronzeagemantis contacts me @twocitizenships and signs off, I will send 10% of all tokens to his wallet.  
+If @bronzeagemantis contacts me @twocitizenships and wishes to participate, I will send 10% of all tokens to his wallet.  
 
