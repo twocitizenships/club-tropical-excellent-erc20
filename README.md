@@ -1,6 +1,7 @@
 # clubTropicalExcellent 
 
 Creation of Club Tropical Excellent Token (CTE)
+Developed by @twocitizenships (twocitizenships@gmail.com)
 
 ![alt text](https://github.com/twocitizenships/clubTropicalExcellent-ERC20/blob/main/CTEPalm.png?raw=true)
 
