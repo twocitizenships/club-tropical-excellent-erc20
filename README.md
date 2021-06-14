@@ -2,7 +2,7 @@
 
 Creation of Club Tropical Excellent Token ($CTE)
 
-"Long term I have dream of forming a kind of hotel lounge, not quite a nightclub, but an elegant lounge in tropical location with pool area, modeled maybe on the one in Graham Greene's novel, The Comedians.  There will be symposia.  There will be tropical whores provided. There will be Olympic gymnastic facility and squash."
+"Long term I have dream of forming a kind of hotel lounge, not quite a nightclub, but an elegant lounge in tropical location with pool area, modeled maybe on the one in Graham Greene's novel, The Comedians.  Maybe in Caribbean or South Pacific.  There will be symposia.  There will be tropical whores provided. There will be Olympic gymnastic facility and squash."
 
 _________________
 
