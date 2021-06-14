@@ -10,4 +10,4 @@ _________________
 
 As the project gains traction, I expect to build in $CTE staking and providing various incentives for capital raising and funding of various Club Tropical Excellent projects globally.  Within the community, there are many skillsets.  If some are inclined to build, together we shall determine plan of action.
 
-Additionally, if @bronzeagemantis contacts @twocitizenships, 10% of total token supply will initially be sent to his address to begin distribution of tokens to members deemed worthy of this endeavor.
+Additionally, if @bronzeagemantis contacts @twocitizenships, 20% of total token supply will initially be sent to his address to begin distribution of tokens to members deemed worthy of this endeavor.
