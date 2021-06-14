@@ -6,7 +6,6 @@ Creation of Club Tropical Excellent Token ($CTE)
 
 _________________
 
-As the project gains traction, I expect to build in $CTE staking and providing various incentives for capital raising and funding of various Club Tropical Excellent projects globally.  Within the community, we have men with many skills.  If some are inclined to make something great, together we shall determine plan of action for making Club Tropical Excellent more than a token.
+As the project gains traction, I expect to build in $CTE staking and providing various incentives for capital raising and funding of various Club Tropical Excellent projects globally.  Within the community, there are many skillsets.  If some are inclined to build, together we shall determine plan of action.
 
-Additionally, if @bronzeagemantis contacts @twocitizenships via Twitter, I will send 10% of $CTE token supply to his wallet. 
-
+Additionally, if @bronzeagemantis contacts @twocitizenships, 10% of total token supply will initially be sent to his address to begin distribution of tokens to members deemed worthy of this endeavor.
