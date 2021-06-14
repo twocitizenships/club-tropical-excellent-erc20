@@ -1,6 +1,6 @@
 # clubTropicalExcellent 
 
-Creation of Club Tropical Excellent Token ($CTE)
+Creation of Club Tropical Excellent Token (CTE)
 
 ![alt text](https://github.com/twocitizenships/clubTropicalExcellent-ERC20/blob/main/CTEPalm.png?raw=true)
 
